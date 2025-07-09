@@ -55,7 +55,7 @@ I'm a multidisciplinary marketing and product strategist with 15+ years of exper
 ---
 
 ## 🔗 Let’s Connect
-- 📍 Córdoba, Spain | 🌍 Available remotely
+- 🌍 Available remotely
 - 📧 danielparedes@enjoyfunnels.com  
 - 💼 [LinkedIn](https://linkedin.com/in/paredesdaniel)
 
